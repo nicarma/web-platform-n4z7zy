@@ -1,0 +1,1 @@
+In diesem Verzeichnis liegen die Bilder dieser Website
